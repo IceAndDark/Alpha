@@ -1,2 +1,2 @@
 # Alpha
-1241241
+Valuable trading info
